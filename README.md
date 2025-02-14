@@ -1,4 +1,7 @@
 Bitunix Referral Code: TOPTOP - Bitunix Sign Up Bonus
+
+<h2>What Is a Bitunix Referral Code?</h2>
+
 What Is a Bitunix Referral Code?
 
 A Bitunix referral code TOPTOP is a unique promo code that grants new users exclusive bonuses upon signing up on the Bitunix crypto exchange. By entering the Bitunix promo code "TOPTOP" during registration, new users can unlock rewards such as cashback, trading fee discounts, and a signup bonus of up to 5,500 USDT. This system benefits both the referrer and the referee.
