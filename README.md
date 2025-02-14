@@ -1,4 +1,4 @@
-Bitunix Referral Code: TOPTOP - Bitunix Sign Up Bonus
+<h1>Bitunix Referral Code: TOPTOP - Bitunix Sign Up Bonus</h1>
 
 <h2>What Is a Bitunix Referral Code?</h2>
 
