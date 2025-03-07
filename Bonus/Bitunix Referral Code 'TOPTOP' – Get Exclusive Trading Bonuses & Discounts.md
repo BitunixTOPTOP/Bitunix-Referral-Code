@@ -36,7 +36,7 @@
 <h2>4. Bitunix Referral Bonuses & Discounts</h2>
 <p>Bitunix provides <strong>new users</strong> with multiple rewards when they register using a <strong>sign-up code</strong>. Here’s a breakdown of the latest 2025 bonuses:</p>
 
-    <table border="1">
+<table border="1">
         <tr>
             <th>Bitunix Referral Code - TOPTOP</th>
             <th>Rewards & Benefits</th>
